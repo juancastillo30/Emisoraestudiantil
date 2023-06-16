@@ -1,2 +1,2 @@
 # Emisoraestudiantil
-Emisoraestudiantil 
+Emisoraestudiantil X2
